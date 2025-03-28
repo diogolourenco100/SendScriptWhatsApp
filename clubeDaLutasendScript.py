@@ -760,7 +760,7 @@ Estou morando com Tyler há um mês, mais ou menos. Tyler desce para o café da 
 
 polpa. O moedor de papel solta um cheiro de peido e as aparas de madeira em
 
-volta do moedor formam pirâmides alaranjadas que cheiram a gaiola de hamster. É uma casa perfeita para vender drogas porque durante o dia zilhões de ca- minhões passam pela Paper Street, mas à noite Tyler e eu estamos sozinhos num raio de oitocentos metros em todas as direções. Encontrei as Reader's Digest no porão, e agora há uma pilha de Reader's Digest em cada cómodo.
+volta do moedor formam pirâmides alaranjadas que cheiram a gaiola de hamster. É uma casa perfeita para vender drogas porque durante o dia zilhões de ca- minhões passam pela Paper Street, mas à noite Tyler e eu estamos sozinhos num raio de oitocentos metros em todas as direções. Encontrei as Readers Digest no porão, e agora há uma pilha de Reader's Digest em cada cómodo.
 
 A Vida nestes Estados Unidos.
 
